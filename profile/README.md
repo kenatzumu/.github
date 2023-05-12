@@ -1,1 +1,3 @@
-## Thank you for dreaming! 🌞
+# Welcome to Sunshaped Studio 🌞
+
+### Thank you for dreaming! 🌞
