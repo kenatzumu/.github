@@ -2,4 +2,5 @@
 
 ## Ethereal. Tranquil. Serene.
 
-![604shots_so](https://github.com/sunshaped/.github/assets/37018766/1f6ba462-a996-466a-b907-a2193e545391)
+
+![spacefrogzstudio](https://github.com/spacefrogzstudio/.github/assets/37018766/2ac93315-57a8-40d9-8b0f-03e8d214ca82)
